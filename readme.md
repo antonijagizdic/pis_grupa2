@@ -1,3 +1,5 @@
-moj prvi projekt u gitu
+moj prvi projekt
 nova antonija linijaaaa
+nova linijaaaa
+nesto novo
 iodfjstgoirsdoi
